@@ -14,7 +14,8 @@ You will find me as heplaphon in most places where I'm active.
 📷 As for my analog photography I have
 * Pentax ME Super (Main camera)
 * Minolta 7s
-* Agfa Isolette I (currently repairing)
+* Agfa Isolette I (120 format)
+* Canon Autoboy Luna XL (Point & Shoot)
 
 
 
